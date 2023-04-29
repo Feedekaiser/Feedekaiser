@@ -1,5 +1,3 @@
-looking to collaborate on (basically anything)<br>
-feedekaiser@protonmail.com
 
 
 <!---
